@@ -1,1 +1,1 @@
-Lab starts at 11:30
+Lab starts at 11:30 .
